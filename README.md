@@ -2,7 +2,7 @@
 
 name is onion / orion
 
-andro - alien!
+andro - alien! no age- (maybe 14-16)
 
 first time making (sometime 2022)
 
